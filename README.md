@@ -2,7 +2,7 @@
 - 👀 We are interested in making your business profitable.
 - 🌱 We are currently providing web solutions.
 - 💞️ We are looking to contribute to your business growth.
-- 📫 How to reach me @ "asasarweb@gmail.com"
+- 📫 How to reach me @ "asasarweb@gmail.com" or @ asasar.in
 - 😄 acronym: Analog Software Application Service And Research.
 - ⚡ Tag line: Come and join us in this trajectory to make the change.
 
